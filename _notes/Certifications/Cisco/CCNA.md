@@ -1,1 +1,0 @@
-# CCNA![[CCNA Notes.pdf]]
